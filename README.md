@@ -1,1 +1,0 @@
-# NusantaraWings-Translate
